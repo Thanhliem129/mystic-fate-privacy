@@ -1,2 +1,2 @@
-# thay-boi-dao-privacy
+# Mystic Fate
 Nội dung chính sách bảo mật
